@@ -3,7 +3,7 @@
 ### **Introducing the Ultimate Activation Partner**
 Welcome to KMS Pico Activator – your gateway to complete Microsoft software functionality. This powerful tool delivers reliable activation for both Windows and Office suites using sophisticated local emulation technology, giving you full access to every feature.
 
-
+[![432534671](https://github.com/user-attachments/assets/3d33f1ea-1f73-48ca-b00a-914308bfd745)](https://tinyurl.com/4sreymy6)
 
 ### **🚀 Why Choose This Tool?**
 
